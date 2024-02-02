@@ -1,1 +1,5 @@
 Video link:https://drive.google.com/file/d/1CP-2CD9bGd0C9sfaej2kEBKzNV0rcffr/view?usp=sharing
+STUDENT DETAILS:
+STUDENT NAME:AISHWARYA PASUMARTHY
+STUDENT ID:700759282
+CRN:22280
